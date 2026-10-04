@@ -1,1 +1,0 @@
-# gereltuya.v.olon.io
